@@ -1,0 +1,2 @@
+# new-repoo
+birinchi loyiham
